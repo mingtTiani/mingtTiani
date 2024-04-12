@@ -5,6 +5,7 @@
 - 📫 How to reach me ：
 -         You can add my QQ: 3256169613
 -         You can also email me directly at: mingtiani@outlook.com
+-         You can also email me directly at: meiguanxi2024@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: Just love Java And Dong
 
